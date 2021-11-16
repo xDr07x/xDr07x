@@ -4,7 +4,7 @@
 ## I'm a Student, Coder, Gamer, and Game Developer!!
 
 - I’m currently learning everything 🤣
-- 2020 Goals: Learn more about other languages and about computer science in general!
+- 2021 Goals: Learn more about other languages and about computer science in general!
 - Fun fact: I love to draw and play guitar
 
 ---
